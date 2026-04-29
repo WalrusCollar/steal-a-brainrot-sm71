@@ -1,4 +1,4 @@
-
+no-ban steal a brainrot Scripts is the best steal a brainrot Script, featuring custom skins and instant win. Safe and powerful for all your needs.
 
 
 
